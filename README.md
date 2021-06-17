@@ -6,7 +6,7 @@ In a **X**-Year battle with ALS, Roger passed abruptly on the morning of 14 June
 
 The purpose of this project is to categorise, organise, and centralise Roger's life work and internet footprint. One of Roger's biggest worries was having his invetions and ideas die with him. We (members of Roger Faulkner's community, _livinginawheelchair_) seek to preserve and continue Roger's legacy through the continued maintanence and recording of his work, documents, visions, and ideas through this website.
 
-To view the archive listing for each of the different sections on the right.
+To view the archive listing for each of the different sections on the left-hand sidebar.
 
 Here are some quick links:
 
