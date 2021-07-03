@@ -2,7 +2,7 @@
 
 Roger Faulkner was an entrepreneur, inventor, and activist with Motor Neurone Disease (often called ALS/MND or Amyotrophic Lateral Sclerosis). Roger left a remarkable impact on all those he touched. He was a visionary who saw the world as a beautiful, vibrant canvas, despite all his adversity. Throughout his life, Roger's mission was to use his skills in science and the power of invention to make the world a better place.
 
-In a **X**-Year battle with ALS, Roger passed abruptly on the morning of 14 June 2021 due to a medical accident after less than a week in his new nursing home. Roger left **X** people and family members behind, including his beloved **X**-year-old son, Rajeev. This is detailed in a later section of this archive. 
+In a eight-Year battle with ALS, Roger passed abruptly on the morning of 14 June 2021 due to a medical accident after less than a week in his new nursing home. This is detailed in a later section of this archive. He leaves behind a beloved adult daughter, Shana, and son, Rajeev; two grandsons, Silas and Devon; six siblings: Dorothy, Martha, Robert, Donald, Carol and Cheryl; and many, many friends.
 
 The purpose of this project is to categorise, organise, and centralise Roger's life work and internet footprint. One of Roger's biggest worries was having his invetions and ideas die with him. We (members of Roger Faulkner's community, _livinginawheelchair_) seek to preserve and continue Roger's legacy through the continued maintanence and recording of his work, documents, visions, and ideas through this website.
 
